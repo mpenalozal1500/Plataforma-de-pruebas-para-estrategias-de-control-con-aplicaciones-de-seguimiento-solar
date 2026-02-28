@@ -1,0 +1,1 @@
+# Plataforma-de-pruebas-para-estrategias-de-control-con-aplicaciones-de-seguimiento-solar
